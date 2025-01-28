@@ -9,7 +9,7 @@
 ## About Me
 
 - Software development student in 42 Madrid👨‍💻👨‍💻
-- Business and Management student in UNIR
+- Business Administration and Management student in UNIR
 - I'm 22 years old
 - Been living in Madrid for 2 years, born and raised in Alicante🏖️🏖️
 - Learning every day😄😄
